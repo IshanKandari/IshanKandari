@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IshanKandari
-- 👀 I’m interested in AI, Web-dev, Gaming, Video Editing & Thumbnail Designing.
+- 👀 I’m interested in AI, Web-dev, Gaming & Video Editing.
 - 🌱 I’m currently learning Computer Applications
 - 💞️ I’m looking to collaborate on Part-time work and freelance.
 - 📫 Email- ishankandari22@gmail.com
